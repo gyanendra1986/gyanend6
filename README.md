@@ -1,2 +1,0 @@
-# gyanend6
-practice
